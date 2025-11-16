@@ -1,1 +1,0 @@
-# keibai-quiz
